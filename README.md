@@ -3,3 +3,6 @@
 
 
 [Certificate_279_20240612_Роговецкий_Роман_Сергеевич.pdf](https://github.com/user-attachments/files/15832021/Certificate_279_20240612_._._.pdf)
+
+
+[Uploading Certificate_279_20240612_Роговецкий_Роман_Сергеевич.pdf…]()
